@@ -1,1 +1,1 @@
-# logoofdiwgo3sk
+# grapichs_diwgo3sk
